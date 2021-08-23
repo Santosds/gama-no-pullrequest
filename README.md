@@ -18,4 +18,9 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+
+
+
+Estou achando o máximo, estou aprendendo tanta coisa nova e rica...
+
+
